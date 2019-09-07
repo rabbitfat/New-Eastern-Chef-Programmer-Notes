@@ -1,0 +1,5 @@
+# Tangyuan
+
+Tang Yuan, nicknamed “Yuan Yu”, “Tang Tuan” and “Floating Yuan Zi”, is one of the representatives of traditional Chinese snacks. It is a spherical food made from glutinous rice flour. Generally there are fillings, cooked and served with soup. It is also the most characteristic food of the Lantern Festival, and has a long history.
+
+According to legend, the rice dumpling originated in the Song Dynasty. At that time, Mingzhou (now Ningbo City, Zhejiang Province) raised a novelty food, that is, stuffed with black sesame and lard, added a little white sugar, and glutinous rice flour into a round shape. After cooking, it tasted sweet and delicious. Very interesting. Because this glutinous rice dumpling was boiled and sinking in the pot, it was first called "Floating Yuanzi", and later some areas changed the "Floating Yuanzi" to the gnocchi. However, the soup group symbolizes a better family reunion. Eating a rice ball means that the new year is a happy family and a round, so it is a must-have for the 15th month of the first month. In some parts of the South, people will get used to eating rice balls instead of dumplings during the Spring Festival.
