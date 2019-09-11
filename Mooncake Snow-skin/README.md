@@ -1,0 +1,4 @@
+# Snow-skin Mooncake
+
+Moon cakes (Pinyin: yue bing) are one of the most famous traditional Chinese pastries. It is the festival food custom of the Mid-Autumn Festival. The moon cakes are round and round, and they are shared by the family, which symbolizes reunion and harmony. Ancient moon cakes were eaten as sacrifices during the Mid-Autumn Festival. It is said that the custom of eating moon cakes on Mid-Autumn Festival began in the Tang Dynasty. In the Northern Song Dynasty, it was popular in the court, and then spread to the folk. At that time, it was commonly known as "small cake" and "moon group". In the Ming Dynasty, it became the common dietary custom of the whole people. The combination of moon cakes and local dietary customs has also developed Cantonese, Beijing, Soviet, Chao and Yunnan style moon cakes, which are loved by people from different parts of China.
+
